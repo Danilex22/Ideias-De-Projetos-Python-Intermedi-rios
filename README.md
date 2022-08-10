@@ -1,0 +1,1 @@
+# Ideias-De-Projetos-Python-Intermedi-rios
